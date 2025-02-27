@@ -1,4 +1,3 @@
-```markdown
 # MAX (2024): A New Era in Indian Cinema
 
 Indian cinema is always evolving, with filmmakers constantly pushing boundaries with fresh ideas and captivating stories. One such film that has been making waves is **MAX (2024)**. This Telugu action-drama has grabbed the attention of audiences not only for its gripping storyline but also for its stellar performances, powerful music, and stunning visuals. Let’s take a closer look at this upcoming cinematic experience.
